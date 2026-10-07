@@ -6,4 +6,4 @@ The supplied home-service content is retained with the new business details. Ser
 
 Images: AI-generated illustrative home-service scenes; they do not depict verified company employees.
 
-Temporary contact details: phone 123 and email contact@softech.example are placeholders. Replace them with live contact details before use.
+Temporary contact details: phone +18019970792 and email Communicationsoftech@gmail.com are placeholders. Replace them with live contact details before use.
